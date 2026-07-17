@@ -1,1 +1,1 @@
-# TakashiSasaki
+5000兆円欲しい。
